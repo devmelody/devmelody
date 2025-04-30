@@ -26,7 +26,7 @@ Still in the works...
 
 ## Get in Touch 📬
 
-- [**LinkedIn**](www.linkedin.com/in/melCamelCase)
+- [**LinkedIn**](https://linkedin.com/in/melCamelCase)
 - [**Twitter**](https://x.com/melCamelCase)
 
 
